@@ -1,16 +1,18 @@
-## Hi there 👋
+## 👋 Hi, I'm Bashar Akhtar  
 
-<!--
-**basharakhtar/basharakhtar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am a **Communication Trainer** with over **10 years of experience** in soft skills, employability training, and corporate workshops.  
+I have trained **15,000+ students and professionals** in communication, leadership, and personality development.  
 
-Here are some ideas to get you started:
+### 🌟 What I Do  
+- Conduct corporate training sessions on communication, leadership, and team building  
+- Mentor students for interviews, group discussions, and placements  
+- Design and deliver workshops on soft skills & behavioral training  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 🏆 Achievements  
+- Awarded **Prof. Hemlata Srivastava Medal for Excellence (2021-22)**  
+- Conducted multiple leadership programs for corporate clients  
+- Certified NLP Practitioner & Soft Skills Trainer  
+
+### 📫 Connect with me  
+- LinkedIn: [linkedin.com/in/bashar-akhtar-82573410b](https://www.linkedin.com/in/bashar-akhtar-82573410b)  
+- Email: bashar.akhtar@gmail.com  
